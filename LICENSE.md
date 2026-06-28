@@ -1,4 +1,4 @@
-# 
+# Ultimato mean reversion trading bot ferramentas for Mac OS | Elite mean reversion trading bot ferramentas for PC Windows. Featuring API de exchange centralizada and API de exchange descentralizada — optimized for maximum performance.
 
 
 
